@@ -26,7 +26,7 @@ Please complete the study descriptives file found [here](https://uob-my.sharepoi
 <br>
 <br>
 
-<b> Email Laurence.Howe@bristol.ac.uk / E.Assary@qmul.ac.uk if you have any queries. </b>
+<b> Email Laurence.Howe@bristol.ac.uk / elham.1.assary@kcl.ac.uk if you have any queries. </b>
 <br>
 <br>
 
